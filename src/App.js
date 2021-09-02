@@ -1,2 +1,2 @@
-trong cuộc đời!
-mỗi con người!
+kỷ niệm trong sáng của tuổi học trò.
+xxx
